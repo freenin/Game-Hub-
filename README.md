@@ -1,2 +1,7 @@
 # Game-Hub-
 The Best Hubs of gaming
+DO NOT TRY COPYINIS STRICTLY FOR PLAYING GAMES
+MORE UPDATES
+WILL
+COME
+have fun! 
